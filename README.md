@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **abdulrehman034551@gmail.com**
 
-- 📄 Know about my experiences [1 year](1 year)
+- 📄 Know about my experiences [1 year]
 
 - ⚡ Fun fact **I think I am Funny**
 
