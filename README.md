@@ -14,7 +14,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/ABDUL-REHMAN345](https://github.com/ABDUL-REHMAN345)
 
-- 💬 Ask me about **Web Development , MEARN**
+- 💬 Ask me about **Web Development , Tech-Related Stuff**
 
 - 📫 How to reach me **abdulrehman034551@gmail.com**
 
